@@ -1,2 +1,2 @@
 <div align='center'>
-  <img src="(https://i.postimg.cc/k5q8H2PM/Kanade_48_trained_art.png)" width="1000">
+  <img src="(https://i.postimg.cc/k5q8H2PM/Kanade_48_trained_art.png)"
