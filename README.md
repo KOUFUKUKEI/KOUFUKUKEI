@@ -1,1 +1,2 @@
-[♥][https://i.postimg.cc/k5q8H2PM/Kanade_48_trained_art.png)]
+<div align='center'>
+  ![](https://i.postimg.cc/k5q8H2PM/Kanade_48_trained_art.png)
