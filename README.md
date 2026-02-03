@@ -1,2 +1,2 @@
 [![Kanade_48_trained_art.png](https://i.postimg.cc/k5q8H2PM/Kanade_48_trained_art.png)](https://postimg.cc/yDpkgYN2)
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31t5g4essljmg3del5ckjf2jjxua&cover_image=false&theme=default&show_offline=true&background_color=ffffff&interchange=false&profanity=false&bar_color=3f313e)](https://github.com/kittinan/spotify-github-profile)
+<p align="center">.[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31t5g4essljmg3del5ckjf2jjxua&cover_image=false&theme=default&show_offline=true&background_color=ffffff&interchange=false&profanity=false&bar_color=3f313e)](https://github.com/kittinan/spotify-github-profile)
