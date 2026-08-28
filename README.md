@@ -7,6 +7,7 @@
 
   <p align="center">
      Do not dwell in the sorrow of parting.
+    <p align="center">
     If you still desire to see your wish fulfilled, then surely we will stand together once more.
   
 
