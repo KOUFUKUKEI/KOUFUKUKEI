@@ -5,6 +5,9 @@
   <p align="center">
     sakiiiikoooooooooo
     
+   <p align="center">
+  <img src="https://i.postimg.cc/hGX4F6LZ/Untitled863-20260828215915.png" width="800" />
+
 　<p align="center">[ata ](https://composedaffection.atabook.org) .✦ ݁˖ [straw ](https://etheyurii.straw.page/)  .✦ ݁ [prns](https://pronouns.cc/@yoisakiloves)
 
   <p align="center">
