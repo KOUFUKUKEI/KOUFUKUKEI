@@ -1,6 +1,6 @@
 <p align="center">![](https://komarev.com/ghpvc/?username=KOUFUKUKEI&label=(>⩊<)&color=9fb3cc)
 <p align="center">
-  <img src="https://i.postimg.cc/63Dy1wFr/veni-vidi-vici.png" width="200" />
+  <img src="https://i.postimg.cc/63Dy1wFr/veni-vidi-vici.png" width="800" />
 
   <p align="center">
     sakiiiikoooooooooo
