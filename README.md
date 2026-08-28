@@ -3,7 +3,7 @@
 <p align="center">
   <img src="https://i.postimg.cc/hGX4F6LZ/Untitled863-20260828215915.png" width="800" />
 <p align="center">
-  <img src="https://i.postimg.cc/63Dy1wFr/veni-vidi-vici.png" width="1500" />
+  <img src="https://i.postimg.cc/63Dy1wFr/veni-vidi-vici.png"
 
   <p align="center">
      Do not dwell in the sorrow of parting.
