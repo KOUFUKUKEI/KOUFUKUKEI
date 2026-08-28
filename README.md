@@ -5,7 +5,7 @@
 <p align="center">
   <img src="https://i.postimg.cc/63Dy1wFr/veni-vidi-vici.png"
 
-　<p align="center">[ata ](https://composedaffection.atabook.org) .✦ ݁˖ [straw ](https://etheyurii.straw.page/)  .✦ ݁ [prns](https://pronouns.cc/@yoisakiloves)
+　<p align="center">[ata ](https://composedaffection.atabook.org) .✦ ݁˖ [straw ](https://etheyurii.straw.page/)  .✦ ݁ [prns](https://pronouns.cc/@yoisakiloves)  .✦ ݁ [guns](guns.lol/venividivici)
 
   <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
