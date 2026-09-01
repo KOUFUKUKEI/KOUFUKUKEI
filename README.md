@@ -1,9 +1,5 @@
 <p align="center">
-  <img src="https://i.postimg.cc/yY8wr9Xn/Untitled866-20260828222327.png" width="800" />
-<p align="center">
-  <img src="https://i.postimg.cc/hGX4F6LZ/Untitled863-20260828215915.png" width="500" />
-<p align="center">
-  <img src="https://i.postimg.cc/63Dy1wFr/veni-vidi-vici.png"
+  <img sec=“https://i.postimg.cc/GmDzxxFQ/Untitled897-20260901020952.png”
 
 　<p align="center">[ata ](https://imperator.atabook.org) .✦ ݁˖ [straw ](https://venivediveci.straw.page)  .✦ ݁ [prns](https://pronouns.cc/@yoisakiloves)  .✦ ݁ [guns](https://guns.lol/venividivici)
 
@@ -12,5 +8,3 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31t5g4essljmg3del5ckjf2jjxua&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=true&bar_color=aec0e5&bar_color_cover=false">
   </a>
 </p>
-<p align="center">
-  <img src="https://i.postimg.cc/yY8wr9Xn/Untitled866-20260828222327.png" width="800" />
