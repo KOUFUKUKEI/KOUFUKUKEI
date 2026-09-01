@@ -1,5 +1,5 @@
 <p align="center">
-  <img src=“https://i.postimg.cc/sXPgYqxS/IMG-0559” width="300" />
+  <img src=“https://i.postimg.cc/Sxc3xhvR/Untitled898-20260901022745.png” width="300" />
 
 　<p align="center">[ata ](https://imperator.atabook.org) .✦ ݁˖ [straw ](https://venivediveci.straw.page)  .✦ ݁ [prns](https://pronouns.cc/@yoisakiloves)  .✦ ݁ [guns](https://guns.lol/venividivici)
 
