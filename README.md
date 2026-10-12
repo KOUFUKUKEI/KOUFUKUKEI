@@ -1,7 +1,7 @@
 <p align="center">
   <img src=“https://i.postimg.cc/Sxc3xhvR/Untitled898-20260901022745.png” width="300" />
   
-　<p align="center">[ata ](https://maidenspup.atabook.org) .✦ ݁˖ [straw ](https://venivediveci.straw.page)  .✦ ݁ [prns](https://pronouns.cc/@yoisakiloves)  .✦ ݁ [guns](https://guns.lol/venividivici)
+　<p align="center">[ata ](https://maidenspup.atabook.org) .✦ ݁˖ [straw ](https://venivediveci.straw.page)  .✦ ݁ [prns](https://pronouns.cc/@maidenspup)  .✦ ݁ [guns](https://guns.lol/venividivici)
 
   <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
