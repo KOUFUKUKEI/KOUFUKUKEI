@@ -1,5 +1,8 @@
-<p align="center">
-  <img src=“https://i.postimg.cc/Sxc3xhvR/Untitled898-20260901022745.png” width="300" />
+
+<p>
+  
+  <img src="https://file.garden/aft92t-9oGJf2Hs2/Sandrone_Render16_Hoyo-transparents.png" width="300">
+</p>
   
 　<p align="center">[ata ](https://maidenspup.atabook.org) .✦ ݁˖ [straw ](https://venivediveci.straw.page)  .✦ ݁ [prns](https://pronouns.cc/@maidenspup)  .✦ ݁ [guns](https://guns.lol/venividivici)
 
