@@ -1,7 +1,6 @@
-
+  <p align="center">
 <p>
-  
-  <img src="https://file.garden/aft92t-9oGJf2Hs2/IMG_2517.png" width="300">
+  <img src="https://file.garden/aft92t-9oGJf2Hs2/IMG_2517.png" width="500">
 </p>
   
 　<p align="center">[ata ](https://maidenspup.atabook.org) .✦ ݁˖ [straw ](https://venivediveci.straw.page)  .✦ ݁ [prns](https://pronouns.cc/@maidenspup)  .✦ ݁ [guns](https://guns.lol/venividivici)
